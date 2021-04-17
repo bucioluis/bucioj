@@ -12,5 +12,5 @@ Here are some ideas to get you started:
  - 💬 Ask me about getting involved, volunteer opportunities, job/internship opportunities at tech and media & entertainment companies
  - 📫 How to reach me: LinkedIn <- is the best way to reach out
  - 😄 Pronouns: He/Him/His
- - ⚡ Fun fact: Love Dark Chocolate & Travel Explorer (Into the Unknown)
+ - ⚡ Fun fact: Love Dark Chocolate & Travel, Learn Multiple Spoken Languages (Current learning French, Italian & Portuguese)
 
