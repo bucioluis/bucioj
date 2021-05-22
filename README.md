@@ -13,5 +13,5 @@ Here are some ideas to get you started:
  - 📫 How to reach me: LinkedIn <- is the best way to reach out
  - 😄 Pronouns: He/Him/His
  - ⚡ Fun fact: Love Dark Chocolate & Travel, Learn Multiple Spoken Languages (Current learning French, Italian & Portuguese)
- - Favorite foods: Chicken tenders & poppers, calzones, and sushi!
+ - Favorite foods: Chicken tenders & nuggets (w/ honey mustard), calzones, and sushi!
 
