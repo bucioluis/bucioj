@@ -5,11 +5,11 @@
 
 Here are some ideas to get you started:
 
- - 🔭 I’m currently working on building a design portfolio. 
- - 🌱 I’m currently learning Google Ads. 
- - 👯 I’m looking to collaborate on UX & Design Projects
+ - 🔭 I’m currently working on building a design & web development portfolio. 
+ - 🌱 I’m currently learning Youtube Music Rights Management. 
+ - 👯 I’m looking to job opportunities in Product Design in New York City. 
  - 🤔 I’m looking for internship and co-op opportunities.
- - 💬 Ask me about getting involved, volunteer opportunities, job/internship opportunities at tech, media & entertainment companies
+ - 💬 Ask me about job/internship opportunities at technology, media & entertainment companies.
  - 📫 How to reach me: LinkedIn <- is the best way to reach out
  - 😄 Pronouns: He/Him/His
  - ⚡ Fun fact: Love Dark Chocolate & Travel, Learn Multiple Spoken Languages (Current learning French, Italian & Portuguese)
